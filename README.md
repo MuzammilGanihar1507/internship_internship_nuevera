@@ -1,2 +1,1 @@
-# internship_internship_nuevera
-Everything related to Nuevera-Internship --Joined on 05-02-2024
+# Everything related to Nuevera-Internship --Joined on 05-02-2024
